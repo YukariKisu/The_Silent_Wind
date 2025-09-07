@@ -27,3 +27,9 @@ Please refer to the links below for source codes and details:
 
 - 📘[Technical Documentation (Website)](https://yukarikisu.com/docs/work1/index1.html)
 - 📸[Daily Progress on Instagram](https://www.instagram.com/yukari.kisu)
+
+---
+
+📹 Project Demo
+--
+[Watch the video](https://www.instagram.com/reel/DOUGyMeDVAm/?igsh=azRqbjY3b243MDl3)
