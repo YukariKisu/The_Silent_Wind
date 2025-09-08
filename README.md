@@ -32,4 +32,4 @@ Please refer to the links below for source codes and details:
 
 📹 Project Demo
 --
-[Watch the video](https://www.instagram.com/reel/DOUGyMeDVAm/?igsh=azRqbjY3b243MDl3)
+[Watch the video](https://www.instagram.com/reel/DOVSFuAjLvM/?igsh=bXkzeWs0Z3dod2Yx)
